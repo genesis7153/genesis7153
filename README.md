@@ -1,4 +1,4 @@
-## 노성균, Sungkyun Noh
+## Chris Noh, (노성균 SungKyun)
 
 ### Nothing is Impossible
 
